@@ -1,4 +1,7 @@
-## Hi there 👋
+<img width="1000" alt="halloweendivider" src="https://github.com/user-attachments/assets/2c4d8c1c-686f-4622-a900-928ac3044ceb" />
+
+work in prog
+
 
 <!--
 **clownsacrilege/clownsacrilege** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
