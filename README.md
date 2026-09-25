@@ -1,6 +1,6 @@
 <img width="1000" alt="halloweendivider" src="https://github.com/user-attachments/assets/2c4d8c1c-686f-4622-a900-928ac3044ceb" />
 
- **_<p align="center">freely c+h & inspo \ <ins>no rp plz</ins>.</p>_**
+ **_<p align="center">freely c+h & inspo \ <ins>no rp plz</ins> \ 17+ frq only.</p>_**
 
 
 
